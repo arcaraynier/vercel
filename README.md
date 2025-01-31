@@ -7,3 +7,5 @@ himo na portfolio lente
 start creating portfolioooo!!
 
 in Vercel
+
+and in Wordpress
