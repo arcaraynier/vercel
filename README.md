@@ -11,3 +11,5 @@ in Vercel
 and in Wordpress
 
 and in Canva
+
+and in Figma
