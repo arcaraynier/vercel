@@ -9,3 +9,5 @@ start creating portfolioooo!!
 in Vercel
 
 and in Wordpress
+
+and in Canva
