@@ -15,3 +15,5 @@ and in Canva
 and in Figma
 
 Trello
+
+A new day is a new beginning
