@@ -18,6 +18,8 @@ Trello
 
 A new day is a new beginning
 
+Be productive.
+
 geez
 
 Yeah.
