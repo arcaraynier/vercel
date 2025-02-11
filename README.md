@@ -23,3 +23,5 @@ geez
 Yeah.
 
 Do some projects
+
+and learn new skills every month
