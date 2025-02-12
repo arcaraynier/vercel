@@ -22,6 +22,8 @@ Be productive.
 
 geez
 
+It was fun
+
 Yeah.
 
 Do some projects
