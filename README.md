@@ -31,3 +31,5 @@ Do some projects
 and learn new skills every month
 
 Practice interpersonal skills
+
+Improve your speaking and critical thinking skills.
