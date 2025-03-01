@@ -18,7 +18,7 @@ Trello
 
 A new day is a new beginning
 
-Be productive.
+Be productive. and good 
 
 geez
 
