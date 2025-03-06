@@ -6,7 +6,7 @@ himo na portfolio lente
 
 start creating portfolioooo!!
 
-in Vercelhey
+in Vercel sigh
 
 and in Wordpress
 
