@@ -8,6 +8,7 @@ start creating portfolioooo!!
 
 in Vercel sigh
 hah
+do it!
 
 and in Wordpress
 
