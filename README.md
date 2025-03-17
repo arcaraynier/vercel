@@ -39,6 +39,7 @@ Improve your speaking and critical thinking skills.
 yeah
 
 update
+March 18, 2025 , Sleep with nanay and greeted her, woke up around4:00 she went to church and I have duty. tommorrow is her birthday happy 65th birthday nanay. sensya wla pako gid gift or ano gid.
 
 yea
 
