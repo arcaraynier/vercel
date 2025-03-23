@@ -10,7 +10,7 @@ in Vercel sigh
 hahe
 do it!
 eee
-and in Wordpress
+and in Wordpressx
 
 and in Canva
 
