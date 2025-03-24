@@ -14,7 +14,7 @@ and in Wordpressx
 
 and in Canva
 
-and in Figma
+and in Figma .
 
 Trello
 
