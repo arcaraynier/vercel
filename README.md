@@ -2,7 +2,7 @@
 vercel
 
 creating a repository in vercel hehe
-himo na portfolio lentedseawds
+himo na portfolio lentedseawdssd
 e
 start creating portfolioooo!!s
 eds
