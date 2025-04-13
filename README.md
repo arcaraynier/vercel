@@ -5,7 +5,7 @@ creating a repository in vercel hehe
 himo na portfolio lentedseawdssd
 e
 start creating portfolioooo!!s
-eds
+edsds
 in Vercel sigh
 hahe
 do it!ds
