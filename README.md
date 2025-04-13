@@ -16,7 +16,7 @@ and in Canva
 
 and in Figma .
 
-Trellohd
+Trellohdjs
 
 A new day is a new beginning
 
