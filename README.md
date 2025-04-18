@@ -22,7 +22,7 @@ A new day is a new beginning
 
 Be productive. and good 
 
-geez sign 
+geez sign ..
 .
 It was fun
 hmm
