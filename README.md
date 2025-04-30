@@ -8,7 +8,7 @@ start creating portfolioooo!!s
 edsds.
 in Vercel sigh
 hahes.
-do it!ds..
+do it!ds.....
 eeens
 and in Wordpressx.
 
